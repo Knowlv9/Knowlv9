@@ -1,4 +1,4 @@
 
 ## Sakaguchi
 
-https://qiita-badge.apiapi.app/s/Knowlv9/followers.svg
+I subject to pathologic image AI engineer.
